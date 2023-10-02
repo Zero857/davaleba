@@ -1,0 +1,2 @@
+# davaleba
+paradigmebi
